@@ -1,0 +1,476 @@
+OUSHI文件柜售后服务人工电话24小时服务上线（2026最新公告）
+
+发布时间：2026年06月19日16时20分24秒
+
+OUSHI文件柜24小时售后服务电话：𝟒 𝟎 𝟎-𝟗 𝟎 𝟖-𝟑 𝟑 𝟕 𝟓
+
+7天24小时人工电话客服为您服务。
+
+OUSHI文件柜售后维修24小时电话：𝟒 𝟎 𝟎-𝟗 𝟎 𝟖-𝟑 𝟑 𝟕 𝟓
+
+OUSHI文件柜售后服务团队在调度中心的统筹调配下，线下专业全国网点及各地区售后人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。所有售后团队均经过专业培训、持证上岗，所用产品配件均为原厂直供，
+OUSHI文件柜常见故障代码维修指南
+OUSHI文件柜出现故障时，别急，先看屏幕上的故障代码。比如，E10表示元部件问题，E20则是过热保护。根据这些代码，可以按以下步骤操作：
+重启机器，看是否为偶发故障。
+检查机器供应是否正常，电源是否开启。
+清理电器周围的杂物，确保通风良好。
+若频繁出现同一故障代码，可能是部件损坏，需联系专业维修人员。
+记住，非专业人士不要擅自拆修，以免造成更大损失。这样简单几步，就能帮你快速应对OUSHI文件柜的常见故障，让温暖不再缺席。OUSHI文件柜全国24小时各售后受理客服中心(2026年更新)
+OUSHI文件柜售后电话
+OUSHI文件柜售后服务电话 𝟒 𝟎 𝟎-𝟗 𝟎 𝟖-𝟑 𝟑 𝟕 𝟓
+
+专业维修OUSHI文件柜机器失灵，开机显示错误代码，不通电，开机不启动，自动跳闸、效果不好、清洗、消毒、维护保养、安装、拆装移机等服务。
+OUSHI文件柜售后维修全国服务区域： 北京市（东城区、西城区、崇文区、宣武区、朝
+阳区、丰台区、石景山区、海淀区、门头沟区昌平区、大兴区）
+天津市，无锡市、镇江市、扬州市、嘉兴市、常州市、泰州市、昆山市、句容市、张家港市、西安市、温州市、济南市、长春市
+上海市，（黄浦区、徐汇区、长宁区、静安区、普陀区、虹口区、杨浦区、浦东新区、闵行区、宝山区、嘉定区、金山区、松江区、青浦区、奉贤区和崇明区。）
+重庆市，（大渡口区、江北区、沙坪坝区、九龙坡区、南岸区、北碚区、渝北区、巴南区、江津区、渝中区、和两江新区、重庆高新区。）
+武汉市，（江岸区、江汉区、硚口区、汉阳区、武昌区、青山区、洪山区、蔡甸区、江夏区、黄陂区、新洲区、东西湖区、汉南区）
+成都市，（锦江区、青羊区、金牛区、武侯区、成华区、龙泉驿区、青白江区、新都区、温江区、双流区、郫都区、新津区）
+南京市，（玄武区、秦淮区、建邺区、鼓楼区、浦口区、栖霞区、雨花台区、江宁区、区、溧水区、高淳区。）
+杭州市，（滨江区、萧山区、余杭区、临安区、富阳区、上城区、下城区、西湖区。）
+无锡市，（锡山区、惠山区、滨湖区、梁溪区、新吴区；江阴市、宜兴市。）
+长沙市，（芙蓉区、天心区、岳麓区、开福区、雨花区、望城区。）
+宁波市，（海曙区、江北区、镇海区、北仑区、鄞州区、）
+苏州市（吴中区、相城区、姑苏区（原平江区、沧浪区、金阊区）、工业园区、高新区（虎丘区）、吴江区，原吴江市）
+合肥市，（蜀山区、包河区、庐阳区、瑶海区、政务区、经济技术开发区、高新区、滨湖新区、新站区、长丰县、肥东县、肥西县，巢湖市。）
+
+江苏南京电信 IPTV 直播源下载地址： https://github.com/taotao9994/hmgnxe/commit/679ddbb372decb4cc7bc37c2a8a69755a966b3a0
+
+
+江苏电信 IPTV 直播源下载地址：  https://github.com/taotao9992/ivifwt/commit/abf5d8e1c884659b6f6ead547c91f5132c707c8a
+
+
+江苏 IPTV 直播源：  https://github.com/taotao9993/kpwngj/commit/082bb9e33d8ac7c69047c3e247534a452a58869a
+
+
+安徽广电 IPTV 直播源下载地址：  https://github.com/taotao9994/hmgnxe/commit/a11eb45764fc88cc19b3921cd875f73bd3cac5dc
+
+
+海南电信组播 IPTV 直播源下载地址：  https://github.com/taotao9992/ivifwt/commit/6d9613eefbf1e115f006cbf1a41cf294a0e83a3a
+
+
+海南联通组播 IPTV 直播源下载地址：  https://github.com/taotao9993/kpwngj/commit/abb2976ab7e4b376eafb8f245a47224b03622fe8
+
+
+湖北 IPTV 直播源：  https://github.com/taotao9993/kpwngj/commit/1fb08f900b9b572e24474b77286cc99c0f668722
+
+
+湖南电信组播直播源下载地址：  https://github.com/taotao9992/ivifwt/commit/bf1eafef6840602321a28cb3d98ea8ca8de603e0
+
+
+湖南电信 IPTV 直播源下载地址：  https://github.com/taotao9991/ygahov/commit/b7d1b758b0f83a7fd3d642b268b25c1051877045
+
+
+湖南联通组播 IPTV 直播源下载地址：  https://github.com/taotao9991/ygahov/commit/ca27f90fbdfb4f742f57cd7cb8621138c1ab78c9
+
+
+湖南联通 IPTV 直播源下载地址：  https://github.com/taotao9993/kpwngj/commit/8af1cf55f04e9edf3a2d0edc0460c8511e999595
+
+
+湖南移动 IPTV 直播源下载地址：  https://github.com/taotao9993/kpwngj/commit/a22aa5c3403857a468ec366e18eb5e2e225b1516
+
+
+湖南 IPTV 直播源：  https://github.com/taotao9992/ivifwt/commit/d0ce93ae81d367f8172cb1d24d19389d97f174b6
+
+
+重庆移动组播直播源下载地址：  https://github.com/taotao9994/hmgnxe/commit/1cbd30ad202e06e6cbbc3afc08b4d4a4032b55a6
+
+
+重庆联通组播直播源下载地址：  https://github.com/taotao9992/ivifwt/commit/cd51419d7c4136c9f8429aa1a5cff79d927f2177
+
+
+重庆联通直播源下载地址：  https://github.com/taotao9993/kpwngj/commit/895cd5c833202c7df73249c585fda7eb04c1667d
+
+
+重庆电信组播直播源下载地址：  https://github.com/taotao9994/hmgnxe/commit/939d8b35d348400b7fa9c7f565ad3737aeca8998
+
+
+重庆电信直播源下载地址：  https://github.com/taotao9994/hmgnxe/commit/dc988a6ac560076c8a65fca4119a56bf4d1964fe
+
+
+重庆 IPTV 直播源：  https://github.com/taotao9993/kpwngj/commit/77e15c5702fcf0b3d6ad35c15b209d79422d1ae0
+
+
+四川移动组播 IPTV 直播源下载地址：  https://github.com/taotao9993/kpwngj/commit/d4ed0a3a0b1afb63616486f2020c58a68331c7bf
+
+
+四川电信 IPTV 直播源下载地址：  https://github.com/taotao9991/ygahov/commit/55dd4058221b620cedc889b1b519ae0305b141a1
+
+
+四川电信 IPTV 组播直播源下载地址：  https://github.com/taotao9994/hmgnxe/commit/7667040acf7b50d40c42265e7629a2c5a15ad038
+
+
+四川广电 IPTV 直播源下载地址：  https://github.com/taotao9991/ygahov/commit/05ea77d2800af31b367bbdfc93de8425d7f635f6
+
+
+四川联通组播 IPTV 直播源下载地址：  https://github.com/taotao9993/kpwngj/commit/2fb249d16de9d1641b73fc3ab3cf41bc877cf8ba
+
+
+四川联通 IPTV 直播源下载地址：  https://github.com/taotao9991/ygahov/commit/9c6caa2f41d3130d2d407d3027530c63115f6dff
+
+
+四川 IPTV 直播源：  https://github.com/taotao9992/ivifwt/commit/ab1df45fe21c9521dfb350a9331cd62159ae1754
+
+
+云南电信组播 IPTV 直播源下载地址：  https://github.com/taotao9994/hmgnxe/commit/c82a09c5822e35d68fd50a2bfa139b32c36c50eb
+
+
+云南移动 IPTV 直播源下载地址：  https://github.com/taotao9991/ygahov/commit/8f71dfb5707294adf499efec1808be9cdb1757ea
+
+
+云南 IPTV 直播源：  https://github.com/taotao9993/kpwngj/commit/3191b4f8059e5c9cadc4d469f63b19d73030d328
+
+
+贵州电信组播 IPTV 直播源下载地址：  https://github.com/taotao9992/ivifwt/commit/4495c1fd678dad682c303f2482b5122725945616
+
+
+贵州移动 IPTV 直播源：  https://github.com/taotao9991/ygahov/commit/46e418ae9e6e7fb3941c35793f02559e0eb7e1a6
+
+
+贵州联通组播 IPTV 直播源下载地址：  https://github.com/taotao9993/kpwngj/commit/29c001a825c075b24c6c3deb9d0374f8ab9b7171
+
+
+贵州联通 IPTV 直播源下载地址：  https://github.com/taotao9991/ygahov/commit/35eb1648a67a89793fa287a4e35ffab9d2185bd0
+
+
+贵州 IPTV 直播源：  https://github.com/taotao9993/kpwngj/commit/bde2847cb36c46680511839ca86f303bd2e23f70
+
+
+福建联通组播 IPTV 直播源下载地址：  https://github.com/taotao9992/ivifwt/commit/e1dde29f37c1198ae5e2fe7a249ecc60e12fc946
+
+
+福建联通 IPTV 直播源下载地址：  https://github.com/taotao9994/hmgnxe/commit/ceca1db09c62a4561acdb241ebc34e7cbcc5d516
+
+
+福建移动 IPTV 直播源下载地址：  https://github.com/taotao9993/kpwngj/commit/0ea1c35964b621a363f1aa65336019dec837b865
+
+
+福建电信组播 IPTV 直播源下载地址：  https://github.com/taotao9991/ygahov/commit/03517d86c093c51641f3aa131c8ef3049dbaf31f
+
+
+福建电信 IPTV 直播源下载地址：  https://github.com/taotao9993/kpwngj/commit/deaa04cbe481153b0a3ed7b041f36b08cf03c910
+
+
+福建 IPTV 直播源：  https://github.com/taotao9992/ivifwt/commit/31e3098c6287801ae3486c2e6fd0cb2f857d0e95
+
+
+安徽移动 IPTV 直播源下载地址：  https://github.com/taotao9994/hmgnxe/commit/e9ff8083fccb023307e07076d68dbb5df4841066
+
+
+安徽电信 IPTV 组播直播源下载地址：  https://github.com/taotao9992/ivifwt/commit/70543cac25dbb43de4b3622b225139b1c90127af
+
+
+安徽电信 IPTV 直播源下载地址：  https://github.com/taotao9991/ygahov/commit/05d124e354ff7d8320eee425479f0ad27187163e
+
+
+安徽联通 IPTV 直播源下载地址：  https://github.com/taotao9993/kpwngj/commit/95f1e838f28623012bedc5f0f1f4ba03e64ee0e6
+
+
+安徽 IPTV 直播源：  https://github.com/taotao9991/ygahov/commit/55208dea92634abc17888a27456be63f3afd26ff
+
+
+陕西地方台直播源下载地址：  https://github.com/taotao9994/hmgnxe/commit/022083916fed51afdd4ab96a8062d255b0d5b48a
+
+
+陕西电信组播 IPTV 直播源下载地址：  https://github.com/taotao9992/ivifwt/commit/f273a99a6cd19a999d632ec76239b53b61fa6250
+
+
+陕西电信 IPTV 直播源下载地址：  https://github.com/taotao9993/kpwngj/commit/56b898ab7f06b98e429062dc9d357ef012a7459a
+
+
+陕西移动组播 IPTV 直播源下载地址：  https://github.com/taotao9992/ivifwt/commit/007afee28458e28d729d2523acd2ba4a0d5995ce
+
+
+陕西移动 IPTV 直播源下载地址：  https://github.com/taotao9994/hmgnxe/commit/4d05b96ff7ed6ab914ff3c4da4af9108e6947069
+
+
+陕西 IPTV 直播源：  https://github.com/taotao9991/ygahov/commit/3d72443141feb84b91bf0880ef615c45b0b63512
+
+
+甘肃电信组播 IPTV 直播源下载地址：  https://github.com/taotao9993/kpwngj/commit/f259885df716496c9e81320426a0490e0f4907c2
+
+
+甘肃移动 IPTV 直播源下载地址：  https://github.com/taotao9991/ygahov/commit/412d49f2aee50b5ec5c858b5f7ab03fa509f78bc
+
+
+甘肃 IPTV 直播源：  https://github.com/taotao9994/hmgnxe/commit/08009a2f962ae2d129e36748a10ff6e8e1a80411
+
+
+山西移动组播 IPTV 直播源下载地址：  https://github.com/taotao9991/ygahov/commit/75d22272fb2b808b41b852bab774c3d1d031f59e
+
+
+山西联通组播 IPTV 直播源下载地址：  https://github.com/taotao9993/kpwngj/commit/b15916f864538d07b1fd46745c85a289f7813584
+
+
+山西联通 IPTV 直播源下载地址：  https://github.com/taotao9992/ivifwt/commit/7138d9fba2bac6e2a26ea633c58384b5bd8e13c9
+
+
+山西 IPTV 直播源：  https://github.com/taotao9992/ivifwt/commit/002fed24331de5527ad5edfaf94b853594047765
+
+
+天津电信组播直播源下载地址：  https://github.com/taotao9992/ivifwt/commit/18e2f1b5b238ec7a5041dd90517a5709003974e7
+
+
+天津联通组播直播源下载地址：  https://github.com/taotao9993/kpwngj/commit/14d09da135cae57136b27cea5b40409792249e5b
+
+
+天津 IPTV 直播源：  https://github.com/taotao9993/kpwngj/commit/eedd4d11fcfbd620119ce51f5c1726d559067804
+
+
+上海移动直播源下载地址：  https://github.com/taotao9992/ivifwt/commit/1987b7b8c9d2415c8c489a8654249ed89306728c
+
+
+上海联通组播直播源下载地址：  https://github.com/taotao9992/ivifwt/commit/e1209764faf6da65f5fb9a5506f7066e7dc4a4a8
+
+
+上海联通直播源下载地址：  https://github.com/taotao9991/ygahov/commit/22827d72bd25f26cdeb867b785ce80db47afb125
+
+
+上海电信组播直播源下载地址：  https://github.com/taotao9994/hmgnxe/commit/29e21be9f5e691ea6cb6892ba021876e66aa6f6a
+
+
+上海电信直播源下载地址：  https://github.com/taotao9994/hmgnxe/commit/730c6c21c8ed072bff5099537a48f52f1931dd32
+
+
+上海 IPTV 直播源：  https://github.com/taotao9994/hmgnxe/commit/9a1419edecc0b0a95724999162877ac950165788
+
+
+北京移动 IPTV 直播源下载地址：  https://github.com/taotao9993/kpwngj/commit/be9d81ba397e079f33fb2576cd655cc7f4f4b6f6
+
+
+北京移动组播直播源下载地址：  https://github.com/taotao9994/hmgnxe/commit/4ffe4d850265e7e6b079b14bba4c19b5f21778fc
+
+
+北京电信组播 IPTV 直播源下载地址：  https://github.com/taotao9991/ygahov/commit/5350e0d18946e147bf84ee9006e3b65c0d9f83b5
+
+
+北京联通组播 IPTV 直播源下载地址：  https://github.com/taotao9993/kpwngj/commit/24fee12c6603357666ff8f6ce8b823654a30efa3
+
+
+北京联通 IPTV 直播源下载地址：  https://github.com/taotao9992/ivifwt/commit/59bb53305d3be8bfa204b60f26fe7a076cd381bf
+
+
+北京 IPTV 直播源：  https://github.com/taotao9994/hmgnxe/commit/54b5dca22eb99d51c0d130c119adea8a6ae8fc28
+
+
+部分地区的移动可全网通用：  https://github.com/taotao9992/ivifwt/commit/cabdf72630d434e01a03051732a8f26d219166b3
+
+
+各地运营商 IPTV 直播源，速度稳定画质好，选择你所在地宽带运营商：  https://github.com/taotao9991/ygahov/commit/ad47e9ad19f214463753659722d6cc5818dfb531
+
+
+广播电台下载地址：  https://github.com/taotao9992/ivifwt/commit/7e9d10126f46fa78642bd982a84de8d992e565d5
+
+
+国内景区直播源下载地址：  https://github.com/taotao9991/ygahov/commit/bd8d9fe0594a9f0189fc02a03bd036d216c86258
+
+
+轮播华数黑莓下载地址：  https://github.com/taotao9994/hmgnxe/commit/558153dd32cda68e168520e5e1a2dab128837606
+
+
+台湾香港澳门电视台直播源下载地址：  https://github.com/taotao9992/ivifwt/commit/8ae988a291c3b6ce193fcb955417f4e880405956
+
+
+韩国、日本、美国、加拿大、英国、意大利、德国、法国、西班牙、南美、俄罗斯、中东等：  https://github.com/taotao9993/kpwngj/commit/1fb08f900b9b572e24474b77286cc99c0f668722
+
+
+国外电视台直播源下载地址：  https://github.com/taotao9992/ivifwt/commit/bf1eafef6840602321a28cb3d98ea8ca8de603e0
+
+
+卫视地方台安徽农大下载地址：  https://github.com/taotao9991/ygahov/commit/b7d1b758b0f83a7fd3d642b268b25c1051877045
+
+
+卫视北京凤凰探索星空卫视北京邮电大学校园网下载地址：  https://github.com/taotao9991/ygahov/commit/ca27f90fbdfb4f742f57cd7cb8621138c1ab78c9
+
+
+卫视上海源下载地址：  https://github.com/taotao9993/kpwngj/commit/8af1cf55f04e9edf3a2d0edc0460c8511e999595
+
+
+卫视重庆广电 下载地址：  https://github.com/taotao9991/ygahov/commit/0add517895f151a953c68b7a41f7f6ad0ba676aa
+
+
+卫视百视 TV 下载地址：  https://github.com/taotao9994/hmgnxe/commit/e255ba9a6dc75f7c58b9749ab71d4b7971acda55
+
+
+移动 IPv6 直播源下载地址：  https://github.com/taotao9991/ygahov/commit/2327d45172f05865a1d131de580000b598a402ae
+
+
+国内电视台 IPv6 直播源下载地址：  https://github.com/taotao9993/kpwngj/commit/cb6e8aac616ef7788041e8b08aaa3fc8bc36ddf4
+
+
+各大卫视、上千个地方台：  https://github.com/taotao9992/ivifwt/commit/c6d1120259ba1580901217fe152afba24c33b61f
+
+
+国内电视台直播源下载地址：  https://github.com/taotao9992/ivifwt/commit/78554f510a37d0e54616419685f54c05724aa74c
+
+
+全国可用直播源：  https://github.com/taotao9992/ivifwt/commit/43e835a9479c4f330791bf5c6222d43f68b0488a
+
+
+包括完整内容所有已知频道：  https://github.com/taotao9991/ygahov/commit/1cd6e307b716ec7f02d2a4eb791720ea034cc2f3
+
+
+除成人内容以外的已知频道：  https://github.com/taotao9994/hmgnxe/commit/e2c937b9d05c3267798c34d8fd03d33cab1f9e10
+
+
+收集来自世界各地公开可用的 IPTV：  https://github.com/taotao9994/hmgnxe/commit/25f76fb81003e9ce29657db4885bbda5bf44991c
+
+
+稳定地址：  https://github.com/taotao9992/ivifwt/commit/f9cb1d5830b25dd00d89e7631d8a3c9a0a48d696
+
+
+2026年06月19日16时20分24秒 更新 CCTV 等世界杯相关 HD 播放源：  https://github.com/taotao9994/hmgnxe/commit/b748029bf55ca8fbc27884149771155524257b83
+
+
+2026年06月19日16时20分24秒 更新 IPTV 工具：  https://github.com/taotao9993/kpwngj/commit/2fb249d16de9d1641b73fc3ab3cf41bc877cf8ba
+
+
+2026年06月19日16时20分24秒 更新世界各地 IPTV 频道：  https://github.com/taotao9991/ygahov/commit/9c6caa2f41d3130d2d407d3027530c63115f6dff
+
+
+2026年06月19日16时20分24秒 更新全国可用直播源：  https://github.com/taotao9992/ivifwt/commit/ab1df45fe21c9521dfb350a9331cd62159ae1754
+
+
+新增各地运营商的 IPTV 地址：  https://github.com/taotao9994/hmgnxe/commit/c82a09c5822e35d68fd50a2bfa139b32c36c50eb
+
+
+插件推荐：  https://github.com/taotao9991/ygahov/commit/8f71dfb5707294adf499efec1808be9cdb1757ea
+
+
+视频教程增加：  https://github.com/taotao9993/kpwngj/commit/3191b4f8059e5c9cadc4d469f63b19d73030d328
+
+
+咪咕源失效：  https://github.com/taotao9992/ivifwt/commit/27df2c9da02e429f2082164d723dcf1af02b4603
+
+
+2026年06月19日16时20分24秒 更新各地运营商 IPTV 直播源：  https://github.com/taotao9992/ivifwt/commit/d1d8ca62b8f08670f587dc0e74ca39cd48daa54e
+
+
+2026年06月19日16时20分24秒 更新台湾香港海外直播源：  https://github.com/taotao9991/ygahov/commit/69e1223ec8cc4f04d2bdc86b738b1824b522892b
+
+
+新增辽宁广电直播源：  https://github.com/taotao9991/ygahov/commit/d23354fadb4daded3bdd8b68f84e60fb7b257ca5
+
+
+新增江西广电直播源：  https://github.com/taotao9994/hmgnxe/commit/e93da3e07ef6fa75148e5af95d1acd2d57d3ac4c
+
+
+新增湖北广电直播源：  https://github.com/taotao9992/ivifwt/commit/e1dde29f37c1198ae5e2fe7a249ecc60e12fc946
+
+
+新增中国广电 cctv + 卫视直播源：  https://github.com/taotao9994/hmgnxe/commit/ceca1db09c62a4561acdb241ebc34e7cbcc5d516
+
+
+新增辽宁电信 IPTV 直播源：  https://github.com/taotao9993/kpwngj/commit/0ea1c35964b621a363f1aa65336019dec837b865
+
+
+2026年06月19日16时20分24秒 更新台湾香港海外直播源：  https://github.com/taotao9991/ygahov/commit/03517d86c093c51641f3aa131c8ef3049dbaf31f
+
+
+新增辽宁移动直播源：  https://github.com/taotao9993/kpwngj/commit/deaa04cbe481153b0a3ed7b041f36b08cf03c910
+
+
+新增浙江杭州华数 IPTV 直播源：  https://github.com/taotao9992/ivifwt/commit/31e3098c6287801ae3486c2e6fd0cb2f857d0e95
+
+
+新增广东联通 IPTV 直播源：  https://github.com/taotao9994/hmgnxe/commit/e9ff8083fccb023307e07076d68dbb5df4841066
+
+
+新增四川广电 IPTV 直播源：  https://github.com/taotao9992/ivifwt/commit/70543cac25dbb43de4b3622b225139b1c90127af
+
+
+新增云南电信 IPTV 直播源：  https://github.com/taotao9991/ygahov/commit/05d124e354ff7d8320eee425479f0ad27187163e
+
+
+2026年06月19日16时20分24秒 更新国内电视台直播源：  https://github.com/taotao9993/kpwngj/commit/95f1e838f28623012bedc5f0f1f4ba03e64ee0e6
+
+
+新增福建电信 IPTV 直播源：  https://github.com/taotao9991/ygahov/commit/55208dea92634abc17888a27456be63f3afd26ff
+
+
+新增天途云 CCTV + 卫视：  https://github.com/taotao9994/hmgnxe/commit/022083916fed51afdd4ab96a8062d255b0d5b48a
+
+
+新增腾讯云 CCTV + 卫视：  https://github.com/taotao9992/ivifwt/commit/f273a99a6cd19a999d632ec76239b53b61fa6250
+
+
+新增 CCTV 付费频道直播源：  https://github.com/taotao9993/kpwngj/commit/56b898ab7f06b98e429062dc9d357ef012a7459a
+
+
+新增广播电台：  https://github.com/taotao9992/ivifwt/commit/007afee28458e28d729d2523acd2ba4a0d5995ce
+
+
+2026年06月19日16时20分24秒 更新 轮播爱奇艺 CIBN 华数 NewTV 虎牙战旗：  https://github.com/taotao9994/hmgnxe/commit/4d05b96ff7ed6ab914ff3c4da4af9108e6947069
+
+
+2026年06月19日16时20分24秒 更新 台湾香港海外直播源：  https://github.com/taotao9991/ygahov/commit/3d72443141feb84b91bf0880ef615c45b0b63512
+
+
+2026年06月19日16时20分24秒 更新 国内电视台直播源：  https://github.com/taotao9993/kpwngj/commit/f259885df716496c9e81320426a0490e0f4907c2
+
+
+国家直播源：  https://github.com/taotao9991/ygahov/commit/412d49f2aee50b5ec5c858b5f7ab03fa509f78bc
+
+
+直播源：  https://github.com/taotao9994/hmgnxe/commit/08009a2f962ae2d129e36748a10ff6e8e1a80411
+
+
+影视剧场：  https://github.com/taotao9991/ygahov/commit/75d22272fb2b808b41b852bab774c3d1d031f59e
+
+
+台湾香港澳门：  https://github.com/taotao9993/kpwngj/commit/b15916f864538d07b1fd46745c85a289f7813584
+
+
+国外电视台：  https://github.com/taotao9992/ivifwt/commit/7138d9fba2bac6e2a26ea633c58384b5bd8e13c9
+
+
+国内电视台：  https://github.com/taotao9992/ivifwt/commit/002fed24331de5527ad5edfaf94b853594047765
+
+
+更早期 2026年06月19日16时20分24秒 更新：  https://github.com/taotao9992/ivifwt/commit/18e2f1b5b238ec7a5041dd90517a5709003974e7
+
+
+各地运营商 IPTV 直播源：  https://github.com/taotao9993/kpwngj/commit/14d09da135cae57136b27cea5b40409792249e5b
+
+
+全国可用直播源：  https://github.com/taotao9993/kpwngj/commit/eedd4d11fcfbd620119ce51f5c1726d559067804
+
+
+2026年06月19日16时20分24秒 更新：  https://github.com/taotao9992/ivifwt/commit/1987b7b8c9d2415c8c489a8654249ed89306728c
+
+
+赞助者：  https://github.com/taotao9992/ivifwt/commit/e1209764faf6da65f5fb9a5506f7066e7dc4a4a8
+
+
+文章：  https://github.com/taotao9991/ygahov/commit/22827d72bd25f26cdeb867b785ce80db47afb125
+
+
+视频教程： https://github.com/taotao9994/hmgnxe/commit/29e21be9f5e691ea6cb6892ba021876e66aa6f6a
+
+
+插件：  https://github.com/taotao9994/hmgnxe/commit/730c6c21c8ed072bff5099537a48f52f1931dd32
+
+
+工具：  https://github.com/taotao9994/hmgnxe/commit/9a1419edecc0b0a95724999162877ac950165788
+
+
+URL：  https://github.com/taotao9993/kpwngj/commit/be9d81ba397e079f33fb2576cd655cc7f4f4b6f6
+
+
+目录： https://github.com/taotao9993/kpwngj/commit/aef73314747bcfb8f66124ea43187326cdbe234f
+
+
+喀麦隆直播电视频道：  https://github.com/taotao9992/ivifwt/commit/7d081d685dd19d5e7baae6887b5bffd3bb994b48
+
+
+阿富汗直播电视频道：  https://github.com/taotao9994/hmgnxe/commit/dc21f614229e271dc73a628e9ebd0924731b6117
+
+
+海地的直播频道：  https://github.com/taotao9992/ivifwt/commit/c8a56f55cdda93d4b77004bd3b7109abdd8e4c48
+
+
+高棉直播和泰国电视，电影和电视剧：  https://github.com/taotao9993/kpwngj/commit/3e01189798c90ede9cdfce9cc979786a0e83bd00
+
+
+厄瓜多尔直播频道：  {
